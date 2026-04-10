@@ -1,3 +1,3 @@
 # Practica-Parcial-2
 Practica parcial 2
-soy sofia 
+Sofia Milena Lopez 202312314
